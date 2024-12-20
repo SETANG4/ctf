@@ -1,0 +1,3 @@
+# ctf
+
+$6$h1dd3n$TZLc1pOBapIAXVXTp4E/IrF9ffbYjZ5IAfsPsF5HI5YOB6LJ9OsILPhl0npfUIvXzCjozAITwBAsHqKeqe3AQ/
